@@ -1,0 +1,1 @@
+I used a vibrant orange and violet color palette to create an energetic yet balanced visual contrast — orange for action and violet for creativity. The Poppins font was chosen for its clean, modern look and excellent legibility on mobile screens.
